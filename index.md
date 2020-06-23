@@ -10,3 +10,11 @@ Er hat eine außergewöhnliche Art Kaffee zu kochen.
 * Spezielle Methode Kaffee zu kochen
 * Kindheitstrauma: Der Vater ist mit einer Reinemachefrau durchgebrannt.
 
+Zitate:
+
+> Adjusting your breasts. You fainted and they shifted all out of whack.
+
+> You need a cup of my java.
+
+> Cleaning woman -- Cleaning woman -- CLEANING WOMAN
+
